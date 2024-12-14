@@ -1,6 +1,6 @@
 ### SNS
 
-- twitter: [@junichi_11](https://twitter.com/junichi_11)
+- X(Twitter): [@junichi_11](https://twitter.com/junichi_11)
 
 ### Web Site
 
